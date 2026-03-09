@@ -20,7 +20,7 @@ Actualmente he decidido dar un giro en mi trayectoria profesional aprovechando q
 
 Los retos, aprender, la adaptabilidad y trabajar en equipo aportando energía, vitalidad y buen clima laboral son otras cualidades que me definen.
 
-Y en mis ratos libres, las actividades que me apasionan son el trail, el trekking, el rafting, la fotografía, la música y bailar. 
+Y en mis ratos libres, las actividades que me apasionan son el trail running, el trekking, el rafting, la fotografía, la música y bailar. 
 
 Si quieres saber más sobre mí, conóceme por [Linkedin](https://www.linkedin.com/in/sonia-dosio-revenga-17812245) o por [mail](mailto:sdosiorevenga@gmail.com).
 
